@@ -4,8 +4,11 @@
 2. c. Archer
 3. Wagnergruppen
 4. North Atlantic Treaty Organization
-5. \_
-6. a. Yahya Sinwar
-7. IDF (Israeli Defence Force)
-8. Benjamin Netanyahu
-9. Titan
+5. Kurdiska Räven
+6. b. Karthoum
+7. a. Yahya Sinwar
+8. IDF (Israeli Defence Force)
+9. Benjamin Netanyahu
+10. Titan
+11. Jetline
+12. Chandler Bing
