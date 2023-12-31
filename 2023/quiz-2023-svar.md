@@ -1,14 +1,15 @@
 # Nyårsquiz 2023 - Svar
 
 1. Rasmus Paludan
-2. c. Archer
-3. Wagnergruppen
-4. North Atlantic Treaty Organization
-5. Kurdiska Räven
-6. b. Karthoum
-7. a. Yahya Sinwar
-8. IDF (Israeli Defence Force)
-9. Benjamin Netanyahu
-10. Titan
-11. Jetline
-12. Chandler Bing
+2. 2 %
+3. c. Archer
+4. Wagnergruppen
+5. North Atlantic Treaty Organization
+6. Kurdiska Räven
+7. b. Karthoum
+8. a. Yahya Sinwar
+9. IDF (Israeli Defence Force)
+10. Benjamin Netanyahu
+11. Titan
+12. Jetline
+13. Chandler Bing
