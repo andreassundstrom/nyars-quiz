@@ -7,9 +7,10 @@
 5. North Atlantic Treaty Organization
 6. Kurdiska Räven
 7. b. Karthoum
-8. a. Yahya Sinwar
-9. IDF (Israeli Defence Force)
-10. Benjamin Netanyahu
-11. Titan
-12. Jetline
-13. Chandler Bing
+8. Bryssel
+9. a. Yahya Sinwar
+10. IDF (Israeli Defence Force)
+11. Benjamin Netanyahu
+12. Titan
+13. Jetline
+14. Chandler Bing
